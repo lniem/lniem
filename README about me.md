@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @lniem
+- 👋 Hi, I’m lasse
 - 👀 I’m interested in ... music production and multimedia as genaral...
 - 🌱 I’m currently learning ... ableton live 11
 - 💞️ I’m looking to collaborate on ... colaborate in music
